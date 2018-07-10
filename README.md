@@ -2,11 +2,11 @@
 Write down every point on my way of asking for a offer
 ***
 ## Offers from Boss直招
-### [格灵深瞳](www.deepglint.com) 预约周五(7月13号上午10:00面试)，职位： 客户技术经理
-### [泛米科技](www.fanmikeji.com) 还未预约
+### [格灵深瞳](http://www.deepglint.com) 预约周五(7月13号上午10:00面试)，职位： 客户技术经理
+### [泛米科技](http://www.fanmikeji.com) 还未预约
 ### [新科以仁](http://www.sincolaser.com/) 激光美容类的仪器
-### [海风教育](www.hfjy.com) 周四(7月12号) 下午一点半面试
-### [学霸君](www.xueba100.com)  还未预约面试，周三(7月11日)下午5:30，来广营
+### [海风教育](http://www.hfjy.com) 周四(7月12号) 下午一点半面试
+### [学霸君](http://www.xueba100.com)  还未预约面试，周三(7月11日)下午5:30，来广营
 ***
 ***
 ## Offers from 猎聘
