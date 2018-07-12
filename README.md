@@ -12,3 +12,4 @@ Write down every point on my way of asking for a offer
 ***
 ## Offers from 猎聘
 ### [比特大陆](https://www.bitmain.com/) 高压电气工程师——海外项目 还未加微信，只是在APP内聊了一下
+2018/07/11 加了微信，说是在海外待3~4个月，但是没有回复具体国外哪里！
