@@ -6,7 +6,8 @@ Write down every point on my way of asking for a offer
 ### [泛米科技](http://www.fanmikeji.com) 还未预约
 ### [新科以仁](http://www.sincolaser.com/) 激光美容类的仪器
 ### [海风教育](http://www.hfjy.com) 周四(7月12号) 下午一点半面试
-### [学霸君](http://www.xueba100.com)  还未预约面试，周三(7月11日)下午5:30，来广营
+### [学霸君](http://www.xueba100.com)  还未预约面试，周三(7月11日)下午5:30，来广营, 推迟到周日下午
+### [进化者机器人](http://www.efrobot.com/) APP内预约，等面式通知，售前技术支持，经验不限，大专
 ***
 ***
 ## Offers from 猎聘
